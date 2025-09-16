@@ -99,6 +99,6 @@ Add predictive analytics for sales forecasting.
 
 👤 **Abrar Jamil**
 
-🔗 LinkedIn
+🔗 LinkedIn: https://www.linkedin.com/in/abrarjamil11/
 
-📧 your.email@example.com
+📧 abrarjamil5263@gmail.com
